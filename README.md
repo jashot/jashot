@@ -12,5 +12,5 @@ Hi, I'm Jas :)
 
 //
 
-🌱 Away from all of that, I enjoy reading, journalling & practising self-care
+🌱 Away from all of that, I enjoy journalling, reading, watching sports & practising self-care
 
