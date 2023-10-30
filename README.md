@@ -12,7 +12,7 @@ I'm a creative person and a people person.
 
 💻 I'm currently learning to code at Le Wagon's flagship campus in London
 
-📫 You can reach me at jas@indiewriter.net 
+📫 You can reach me at jshothi@gmail.com
 
 //
 
