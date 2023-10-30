@@ -1,6 +1,4 @@
-Hi, I'm Jas Hothi.
-
-I'm a creative person and a people person.
+Hi, I'm Jas :)
 
 🤝 I began working life in customer service & FS recruitment
 
