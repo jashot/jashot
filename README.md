@@ -1,3 +1,1 @@
-Hi, I'm Jas :)
-
-Find me at www.jasraj.me
+Hi, I'm Jas.
